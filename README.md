@@ -20,6 +20,7 @@
 
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
 
+<img width="400" height="40" alt="image_2026-09-21_223534772" src="https://github.com/user-attachments/assets/0e10dbc2-770a-4e18-a730-81461a106d32" />
 
 </div>
 
