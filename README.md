@@ -12,9 +12,8 @@
 
 𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
-　𝄄 .     ࣪   ♡‌  ㅤ۪ㅤjanuary　7　2008
+　𝄄 .     ࣪   ♡‌  ㅤ۪ㅤjanuary　7　2008 <img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
 
-<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
 <img width="400" height="50" alt="tumblr_bc0c1e817881502bc8f739b0c9448c08_917dbfa1_640" src="https://github.com/user-attachments/assets/f9870998-037b-4a6b-9022-12b9b0dc5f27" />
 
 </div>
