@@ -55,7 +55,7 @@ no dni / i will freely block, which doesn't happen often dw  𓈒　?
   <img width="25" height="25" alt="image_2026-09-21_225058592" src="https://github.com/user-attachments/assets/3eb45863-c957-4af0-953f-d945f77565a9"/>
 <br>
  <br>
-<img width="400" height="30" alt="image_2026-09-21_230335605" src="https://github.com/user-attachments/assets/81e385a8-087b-4e85-8c5a-bdd29f8b92b8" />
+<img width="400" height="40" alt="image_2026-09-21_230335605" src="https://github.com/user-attachments/assets/81e385a8-087b-4e85-8c5a-bdd29f8b92b8" />
 
 
 </div>
