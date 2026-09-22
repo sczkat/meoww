@@ -5,6 +5,7 @@
 <div align="center">
 <img width="400" height="50" alt="image" src="https://github.com/user-attachments/assets/40b4d0f5-4f6c-46e0-aedb-cff96ab7b4b6" />
 
+· · ─────── ·𖥸· ─────── · ·
 
 ✿‧̥  𓈒 ϱ 　Sawen,　She/Her
 
@@ -13,6 +14,7 @@
 　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
 .   ࣪   ♡‌ㅤ۪ㅤ Jan　7　2008 ㅤ۪ㅤ♡‌  ࣪ .
+· · ─────── ·𖥸· ─────── · ·
 
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
 
