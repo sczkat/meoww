@@ -2,6 +2,9 @@
 
 <img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="450" align="left"> 
 
+<img width="2450" height="180" alt="image" src="https://github.com/user-attachments/assets/40b4d0f5-4f6c-46e0-aedb-cff96ab7b4b6" />
+
+
 　　　　◜ ͡　　✿‧̥　  𓈒 ϱ　　byebye,　{user} 　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2589.gif" width="22">
 
 　　　　𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
