@@ -1,3 +1,4 @@
+<img align="left" width="150" src="YOUR_IMAGE_URL">
 <img width="320" height="320" alt="Untitled65_20260921200237" src="https://github.com/user-attachments/assets/b329d3b1-5d27-4e33-9e33-0ae0897ab150" />
 
 <p align="right">
