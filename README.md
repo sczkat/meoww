@@ -43,7 +43,7 @@
 · · ─────── ·𖥸· ─────── · ·
 <br>
 <br>
-  ᩠᮫𖨂 Multifandom . No DNI 𓈒♬　
+ 　೨౿　 Multifandom, no DNI 　𓏲𝄢　𓈒
   <br>
    <br>
   <img width="25" height="25" alt="image_2026-09-21_225058592" src="https://github.com/user-attachments/assets/3eb45863-c957-4af0-953f-d945f77565a9"/>
