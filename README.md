@@ -43,13 +43,13 @@
 · · ─────── ·𖥸· ─────── · ·
 <br>
 <br>
- 　೨౿　 Multifandom, no DNI 　𓏲𝄢　𓈒
+ 　೨౿　 Multifandom　𓏲𝄢　𓈒
   <br>
    <br>
   <img width="25" height="25" alt="image_2026-09-21_225058592" src="https://github.com/user-attachments/assets/3eb45863-c957-4af0-953f-d945f77565a9"/>
 <br>
   <br>
-(will freely block, which doesn't happen often dw)
+No DNI (i will freely block, which doesn't happen often dw)
 <br>
   <br>
 Ambiverted , i love making new friends !
