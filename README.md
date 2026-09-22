@@ -5,6 +5,8 @@
 <div align="center">
 
 <img width="400" height="70" alt="tumblr_db122460338ff20b71570666fb43a385_b00283cc_1280" src="https://github.com/user-attachments/assets/7269f8c6-e706-48bf-bc0e-03cbeaede938" />
+<br>
+<br>
 
 · · ─────── ·𖥸· ─────── · ·
 
@@ -19,6 +21,7 @@
 · · ─────── ·𖥸· ─────── · ·
 
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
+<br>
 <br>
 
 <img width="400" height="40" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
