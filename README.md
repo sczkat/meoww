@@ -13,7 +13,7 @@
 ✿‧̥  𓈒 ϱ 　Sawen,　She/Her
 
 
-𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="15" height="15" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
+𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
 ゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
 .   ࣪   ♡‌ㅤ۪ㅤ Jan　7　2008 ㅤ۪ㅤ♡‌  ࣪ .
@@ -29,7 +29,7 @@
 
 <br>
 <br>
-<img src="https://github.com/user-attachments/assets/9763c917-7234-4ddb-b6c4-8a8730eb00f9"  width="450" align="right"> 
+<img src="https://github.com/user-attachments/assets/9763c917-7234-4ddb-b6c4-8a8730eb00f9"  width="400" align="right"> 
 
 <br>
 <br>
