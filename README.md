@@ -36,10 +36,12 @@
 <div align="center">
 <img width="425" height="45" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
 <br>
+<br>
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
 <br>
 <br>
 · · ─────── ·𖥸· ─────── · ·
+<br>
 <br>
 No DNI (I will freely block, which doesn't happen often dw)
 
