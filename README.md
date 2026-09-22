@@ -1,4 +1,5 @@
-<img align="left" width="150" src="YOUR_IMAGE_URL">
+<img align="left" width="150" src="<img width="700" height="697" alt="image" src="https://github.com/user-attachments/assets/38fa1fbd-b052-49cd-bb7a-a4f00a352ad8" />
+">
 <img width="320" height="320" alt="Untitled65_20260921200237" src="https://github.com/user-attachments/assets/b329d3b1-5d27-4e33-9e33-0ae0897ab150" />
 
 <p align="right">
