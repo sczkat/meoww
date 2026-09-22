@@ -9,7 +9,8 @@
 
 　　　　𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
-　　　　𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　come　back　soon
+　　　<img width="25" height="25" alt="image_2026-09-21_220306148" src="https://github.com/user-attachments/assets/b3cb6733-5a81-4ac8-880e-92e12466d279" />
+　𝄄 .     ࣪   ♡‌  ㅤ۪ㅤ　come　back　soon
   
 ⠀⠀⠀⠀⠀
 
