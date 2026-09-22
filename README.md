@@ -50,7 +50,7 @@ no dni / i will freely block  𓈒　?
  <br>
   <br>
  
-𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="image_2026-09-21_225058592" src="https://github.com/user-attachments/assets/3eb45863-c957-4af0-953f-d945f77565a9"/>
+𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="tumblr_eb556af0b1ed39e3648e98a8d4920ca5_b311d98c_400" src="https://github.com/user-attachments/assets/589dc58e-1d17-465c-aa6b-d31514d219c4" />
 　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
   <br>
   <br>
