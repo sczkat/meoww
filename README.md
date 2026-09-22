@@ -1,4 +1,4 @@
-<img align="right" src="https://picsum.photos/300/200" alt="image" />
+<img align="left" src="https://picsum.photos/300/200" alt="image" />
 Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem Ipsum has been the Lorem Ipsum is simply dummy text of the printing and typesetting industry. Lorem Ipsum has been the 
 <br>
 <br>
