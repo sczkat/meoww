@@ -15,7 +15,7 @@
 
 <div align="center">
   
-<img width="1177" height="331" alt="Untitled69_20260921205954" src="https://github.com/user-attachments/assets/86bf8b59-6903-42ad-aaf0-47217b647d43" />
+<img width="800" height="131" alt="Untitled69_20260921205954" src="https://github.com/user-attachments/assets/86bf8b59-6903-42ad-aaf0-47217b647d43" />
 
 
 <div/>
