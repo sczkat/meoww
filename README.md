@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<img width="400" height="50" alt="tumblr_db122460338ff20b71570666fb43a385_b00283cc_1280" src="https://github.com/user-attachments/assets/7269f8c6-e706-48bf-bc0e-03cbeaede938" />
+<img width="400" height="70" alt="tumblr_db122460338ff20b71570666fb43a385_b00283cc_1280" src="https://github.com/user-attachments/assets/7269f8c6-e706-48bf-bc0e-03cbeaede938" />
 
 · · ─────── ·𖥸· ─────── · ·
 
