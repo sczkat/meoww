@@ -3,7 +3,8 @@
 <img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="450" align="left"> 
 
 <div align="center">
-<img width="400" height="50" alt="tumblr_bc0c1e817881502bc8f739b0c9448c08_917dbfa1_640" src="https://github.com/user-attachments/assets/f9870998-037b-4a6b-9022-12b9b0dc5f27" />
+
+<img width="400" height="50" alt="tumblr_db122460338ff20b71570666fb43a385_b00283cc_1280" src="https://github.com/user-attachments/assets/7269f8c6-e706-48bf-bc0e-03cbeaede938" />
 
 · · ─────── ·𖥸· ─────── · ·
 
