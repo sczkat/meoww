@@ -5,7 +5,7 @@
 <img width="400" height="50" alt="image" src="https://github.com/user-attachments/assets/40b4d0f5-4f6c-46e0-aedb-cff96ab7b4b6" />
 
 
-　　　　◜ ͡　　✿‧̥　  𓈒 ϱ　　byebye,　{user} 　<img width="25" height="25" alt="tumblr_a46eb4db7b48cebec9a229dd2db25837_0963d285_1280" src="https://github.com/user-attachments/assets/9856142c-6d7a-4cb2-ab56-f3421687294c" />
+　　　　◜ ͡　　✿‧̥　  𓈒 ϱ　　byebye,　{user} 　<img width="25" height="25" alt="IMG_9025" src="https://github.com/user-attachments/assets/278d5842-9835-45d0-9ccd-df593b43c0b6" />
 
 
 　　　　𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
