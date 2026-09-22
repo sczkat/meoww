@@ -1,4 +1,5 @@
-<img src="path/to/image.png" alt="Alt Text" height="20" align="center"> Your text goes here!
+<img src="<img width="700" height="697" alt="image" src="https://github.com/user-attachments/assets/6ebd5510-67a7-4827-8bca-c1bac031446a" />
+" alt="Alt Text" height="20" align="center"> Your text goes here!
 
 <img width="320" height="320" alt="Untitled65_20260921200237" src="https://github.com/user-attachments/assets/b329d3b1-5d27-4e33-9e33-0ae0897ab150" />
 
