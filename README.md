@@ -41,7 +41,6 @@
 <br>
 <br>
 
-<br>
  　೨౿　 Multifandom　𓏲𝄢　𓈒
   <br>
 <br>
