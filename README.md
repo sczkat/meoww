@@ -43,7 +43,7 @@
 · · ─────── ·𖥸· ─────── · ·
 <br>
 <br>
-No DNI
+Multifandom ,, No DNI
 <br>
   <br>
 (will freely block, which doesn't happen often dw)
