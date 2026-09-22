@@ -1,6 +1,6 @@
 </div>
 
-<img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="400" align="left"> 
+<img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="500" align="left"> 
 
 　　　　◜ ͡　　✿‧̥　  𓈒 ϱ　　byebye,　{user} 　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2589.gif" width="22">
 
