@@ -1,6 +1,8 @@
 <img width="300" height="300" alt="Untitled65_20260921200237" src="https://github.com/user-attachments/assets/b329d3b1-5d27-4e33-9e33-0ae0897ab150" />
 <br>
+<p align="right">
 <img width="300" height="300" alt="Untitled66_20260921200335" src="https://github.com/user-attachments/assets/c18022a0-233e-4c05-8a54-8651396c3204" />
+</p>
 <br>
 <div align="center">
   
