@@ -55,6 +55,9 @@ no dni / i will freely block  𓈒　?
 ♡.‘ Ambiverted / No need to use tone tags  (*ᴗ͈ˬᴗ͈) 
 <br>
  <br>
+c + h welcomed and encouraged at all times
+<br>
+ <br>
 <img width="400" height="40" alt="image_2026-09-21_230335605" src="https://github.com/user-attachments/assets/81e385a8-087b-4e85-8c5a-bdd29f8b92b8" />
 
 
