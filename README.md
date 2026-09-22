@@ -1,5 +1,14 @@
 </div>
 
+<img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b">
+
+
+  
+⠀⠀⠀⠀⠀⠀⠀ ֺ𓐇 ͡ . ֹ 　　tara　　ᵒʳ　　dreamy　　(*ᴗ͈ˬᴗ͈)　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2589.gif" width="22">
+
+⠀⠀⠀⠀⠀⠀⠀shy　　/　　doll　　𓏼 ̣̣ :　　aroace　　girlthing
+
+
 <img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b" />
 " />
 " width="370" align="left">
