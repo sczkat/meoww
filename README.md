@@ -7,6 +7,11 @@
 ⠀⠀⠀⠀⠀⠀⠀ ֺ𓐇 ͡ . ֹ 　　tara　　ᵒʳ　　dreamy　　(*ᴗ͈ˬᴗ͈)　　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2589.gif" width="22">
 
 ⠀⠀⠀⠀⠀⠀⠀shy　　/　　doll　　𓏼 ̣̣ :　　aroace　　girlthing
+<br>
+<br><br>
+<br><br>
+<br><br>
+<br>
 
 <br>
 <br>
