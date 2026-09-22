@@ -43,8 +43,13 @@
 · · ─────── ·𖥸· ─────── · ·
 <br>
 <br>
-No DNI (I will freely block, which doesn't happen often dw)
-
+No DNI (will freely block, which doesn't happen often dw)
+<br>
+Ambiverted , i love making new friends !
+<br>
+No need to use tone tags ♡.‘
+<br>
+<br>
 · · ─────── ·𖥸· ─────── · ·
 
 </div>
