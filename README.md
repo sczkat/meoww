@@ -38,9 +38,9 @@
 <br>
 <br>
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
-
+<br>
 · · ─────── ·𖥸· ─────── · ·
-
+No DNI (I will freely block, which doesn't happen often dw)
 
 · · ─────── ·𖥸· ─────── · ·
 
