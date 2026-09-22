@@ -14,7 +14,7 @@
 
 
 𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />
-　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
+゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
 
 .   ࣪   ♡‌ㅤ۪ㅤ Jan　7　2008 ㅤ۪ㅤ♡‌  ࣪ .
 
@@ -51,7 +51,7 @@ no dni / i will freely block  𓈒　?
   <br>
  
 𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　<img width="25" height="25" alt="tumblr_eb556af0b1ed39e3648e98a8d4920ca5_b311d98c_400" src="https://github.com/user-attachments/assets/589dc58e-1d17-465c-aa6b-d31514d219c4" />
-　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
+゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
   <br>
   <br>
 ♡.‘ Ambiverted / No need to use tone tags  (*ᴗ͈ˬᴗ͈) 
