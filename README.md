@@ -1,5 +1,7 @@
-<img align="left" src="https://picsum.photos/300/200" alt="image" />
+<img align="left" src="<img width="315" height="315" alt="Untitled68_20260921210357" src="https://github.com/user-attachments/assets/d317e432-6ea7-4d76-907d-b9f1b2e46aaa" />" alt="image" />
 sss
+<br>
+<br>
 <img width="315" height="315" alt="Untitled68_20260921210357" src="https://github.com/user-attachments/assets/d317e432-6ea7-4d76-907d-b9f1b2e46aaa" />
 <br>
 <br>
