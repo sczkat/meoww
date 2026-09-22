@@ -19,6 +19,7 @@
 · · ─────── ·𖥸· ─────── · ·
 
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
+<br>
 
 <img width="400" height="40" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
 
