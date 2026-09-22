@@ -23,8 +23,7 @@
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
 <br>
 <br>
-
-<img width="400" height="40" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
+<img width="400" height="40" alt="tumblr_dd7d24994a7e5955783dc50581b72fde_541ab8c8_1280" src="https://github.com/user-attachments/assets/a2960d47-d91f-4d51-8084-a8dbc7753883" />
 
 </div>
 
