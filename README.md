@@ -11,7 +11,8 @@
 
 
 𓎟𓎟𓎟　 ݁ 　ৎ ݂ ݁　　゛　  ִ 　　♥︎̼̻ ͟ ͟ ͟ 
-　.     ࣪ ♡‌  ㅤ۪　january　7　2008
+</div>
+<img width="25" height="25" alt="image_2026-09-21_221746748" src="https://github.com/user-attachments/assets/e174e427-3c13-4656-8f2d-3e0504dc7c8f" />.     ࣪ ♡‌  ㅤ۪　january　7　2008
 
 </div>
 
