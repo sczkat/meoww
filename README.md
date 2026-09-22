@@ -1,6 +1,6 @@
 </div>
 
-<img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="370" align="left"> 
+<img src="https://github.com/user-attachments/assets/3d584c0b-68e6-4abe-aeec-804679b9fa2b"  width="400" align="left"> 
 
 　　　　◜ ͡　　✿‧̥　  𓈒 ϱ　　byebye,　{user} 　<img src="https://file.garden/aRY3l6C0BHrrKtiZ/IMG_2589.gif" width="22">
 
@@ -12,7 +12,7 @@
 
 <br>
 <br>
-<img src="https://github.com/user-attachments/assets/9763c917-7234-4ddb-b6c4-8a8730eb00f9"  width="370" align="right"> 
+<img src="https://github.com/user-attachments/assets/9763c917-7234-4ddb-b6c4-8a8730eb00f9"  width="400" align="right"> 
 
 <div align="center">
   
