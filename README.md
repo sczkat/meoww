@@ -19,7 +19,7 @@
 · · ─────── ·𖥸· ─────── · ·
 
 ˚　　   ✦ 　　   .　　. 　 ˚　.  　　 ✦⠀.   　˚　　   ✦　  .   　˚
-<img width="400" height="50" alt="tumblr_bc0c1e817881502bc8f739b0c9448c08_917dbfa1_640" src="https://github.com/user-attachments/assets/f9870998-037b-4a6b-9022-12b9b0dc5f27" />
+
 
 </div>
 
