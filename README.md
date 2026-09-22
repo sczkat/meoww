@@ -34,9 +34,9 @@
 <br>
 <br>
 <div align="center">
-<img width="400" height="40" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
+<img width="500" height="50" alt="image_2026-09-21_223617384" src="https://github.com/user-attachments/assets/9e8169d6-aeb8-4f7b-8d03-f3f18c4c37ec" />
  
-<img width="400" height="50" alt="tumblr_bc0c1e817881502bc8f739b0c9448c08_917dbfa1_640" src="https://github.com/user-attachments/assets/f9870998-037b-4a6b-9022-12b9b0dc5f27" />
+<img width="500" height="50" alt="tumblr_bc0c1e817881502bc8f739b0c9448c08_917dbfa1_640" src="https://github.com/user-attachments/assets/f9870998-037b-4a6b-9022-12b9b0dc5f27" />
 
 
 
